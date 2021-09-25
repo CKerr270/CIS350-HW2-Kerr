@@ -1,4 +1,4 @@
-# CIS305-HW2-Kerr
+# CIS350-HW2-Kerr
 
 ## Chase Kerr
 * I am an avid hunter, fisher, and outdoorsman. My favorite season is Fall because it allows me to get outside and do the things I enjoy most. Bass Fishing and Deer season are among my favorites. I also really enjoy going out to corn mazes, pumpkin patches, and everything to do with Halloween.
